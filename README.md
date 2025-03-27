@@ -1,7 +1,7 @@
 # **SAMAR ALGHEETANY**
 
-📍 **Madinaty, Cairo, Egypt**  |  📧 **SamarAlgheetany@gmail.com**  |  📞 **(+2) 010-02144022**  
-🌍 **[LinkedIn](www.linkedin.com/in/samaralgheetany) | [Linktree](https://linktr.ee/SamarAlgheetany)**
+📍 **Madinaty, Cairo, Egypt**  |  📧 **SamarAlgheetany@gmail.com**  |  📞 **(+2) 010-021440xx**  
+🌍 [LinkedIn](www.linkedin.com/in/samaralgheetany) | [Linktree](https://linktr.ee/SamarAlgheetany)
 
 ---
 
